@@ -1,4 +1,4 @@
-# Hey! 👋🏼 I'm **Saleel vk**
+# Hey! 👋🏼 I'm **Saleel**
 
 Saleel | Software Developer & Aspiring AI Enthusiast
 
